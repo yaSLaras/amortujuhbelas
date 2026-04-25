@@ -1,0 +1,2 @@
+# amortujuhbelas
+buat ktp
